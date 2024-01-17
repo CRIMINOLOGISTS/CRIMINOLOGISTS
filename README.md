@@ -1,4 +1,5 @@
 ![desc](https://c.tenor.com/J5jHQpL-e4wAAAAC/lelouch-anime.gif)
+pulling up to the function in my ponytown fursuits 
 <!--
 **CRIMINOLOGISTS/CRIMINOLOGISTS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
