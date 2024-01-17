@@ -4,7 +4,6 @@
 
 pulling up to the function in my ponytown fursuits 
 
-i follow back whenever wherever
 <!--
 **CRIMINOLOGISTS/CRIMINOLOGISTS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
