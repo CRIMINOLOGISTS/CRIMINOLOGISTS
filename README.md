@@ -1,8 +1,7 @@
-![desc](https://c.tenor.com/J5jHQpL-e4wAAAAC/lelouch-anime.gif)
+<p align="center">
+  <img width="460" height="300" src="https://media.discordapp.net/attachments/1140510103972356106/1197358465698496613/wfD9sHCiNZBBL6MAIklvSIQJYSwL7QQ4cO5QSDQVlRFNHr9QqdnZ2C1WrFyFIfM2aMWlNTo37ZJJMsRUbLzmICJJZZvPm0dCJABIgAEciMAIllZpzoLiJABIgAEchiAiSWWbz5tHQiQASIABHIjACJZWac6C4iQASIABHIYgIkllm8bR0IkAEiAARyIwAiWVmnOguIkAEiAARyGICJJZZvPm0dCJABIgAEciMAIllZpzoLiJABIgAEchiAiSWWbz5tHQiQASIABHIjACJZWac6C4iQASIABHIYgIkllm8bR0IkAEiAARyIwAiWVmnOguIkAEiAARyGICJJZZvPm0dCJABIgAEciMAIllZpzoLiJABIgAEchiAiSWWbz5tHQiQASIABHIjACJZWac6C4iQASIABHIYgIkllm8bR0IkAEiAARyIwAiWVmnOguIkAEiAARyGICJJZZvPm0dCJABIgAEciMAIllZpzoLiJABIgAEchiAiSWWbz5tHQiQ..png?ex=65baf9f8&is=65a884f8&hm=f8dc2c0f0b5675dabde3361f7c7096ebd0cad698d08fdad85141532d80d58b6d&=&format=webp&quality=lossless&width=572&height=600">
+</p>
 
-
-
-pulling up to the function in my ponytown fursuits 
 
 <!--
 **CRIMINOLOGISTS/CRIMINOLOGISTS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
