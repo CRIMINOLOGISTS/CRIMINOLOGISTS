@@ -3,7 +3,9 @@
 </p>
 
 
-<p align="center">lorem <img src="https://mikejima.crd.co/assets/images/shadow/55ab5fc0.gif?v=2e5106a3" width="30px"> ipsum</p>
+<p align="center"><img src="https://mikejima.crd.co/assets/images/shadow/55ab5fc0.gif?v=2e5106a3" width="30px">    shoot me a whisper any
+time and i will respond.. so sorry if i
+dont though i am a chronic offtabber</p>
 
 <!--
 **CRIMINOLOGISTS/CRIMINOLOGISTS** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
